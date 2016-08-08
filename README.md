@@ -1,4 +1,4 @@
 # hello-world
 Just another depository
-I am a self starter and motivated. 
-Added information.
+I'm excited to learn about your world.
+The meeting with your leader was very brief.
